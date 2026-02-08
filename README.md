@@ -1,1 +1,1 @@
-# Zoom-Quality-Management-Case-Study-
+# Zoom_Quality_Management_Case_Study
